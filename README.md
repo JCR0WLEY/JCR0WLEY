@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jennifer Crowley @JCR0WLEY 
+- 👋 Hi, I’m Jennifer Crowley @JCR0WLEY https://www.linkedin.com/in/jennifer-crowley-978ba113b/
 - 👀 I’m interested in ... living a vibrant  and full life. Creative Direction. Off Grid. Prepping. Nature.
 - 🌱 I’m currently learning ... AI & ML, Python, and UI
 - 💞️ I’m looking to collaborate on ... Innovative thinking & strategic approach to design.
