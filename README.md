@@ -1,5 +1,13 @@
-- 👋 Hi, I’m Jennifer Crowley @JCR0WLEY https://www.linkedin.com/in/jennifer-crowley-978ba113b/
-- 👀 I’m interested in ... living a vibrant  and full life. Creative Direction. Off Grid. Prepping. Nature.
-- 🌱 I’m currently learning ... AI & ML, Python, and UX UI
-- 💞️ I’m looking to collaborate on ... Innovative thinking & strategic approach to design.
-- 📫 How to reach me ... crowleyjennifer79@gmail.com
+- 👋 Hi, I’m Jennifer Crowley, you can find me at  https://www.linkedin.com/in/jennifer-crowley-978ba113b/
+- Design District Intel at https://www.linkedin.com/company/design-district-intel/
+- substack blogs at https://substack.com/@designdistrictintel
+- systems analyst, business analyst, product manager, data analytics, saas project management, integrations, ai, automating, webdesign, ux, qa, agile, scrum, all things tech 
+- travel agency services
+- ai consulting, freelance, business coaching services
+- l&d learning and development, instructional design, knowledge base author, copywriter, technical writer
+- human rights, data privacy, child advocate
+- nature, enviroment, resources, hiking
+- music, dance, food, culture 
+- art, photography, graphics, motion graphics, creative direction
+- growth, expansion, reflection, community, adventure, exploration, experimentation, challenge the status quo, infinate possibilities and perspectives to consider, never bored
+- You can find me catching flights 
