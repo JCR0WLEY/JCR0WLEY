@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Jennifer Crowley, you can find me at  https://www.linkedin.com/in/jennifer-crowley-978ba113b/
+- 👋 Hi, I’m Jennifer Crowley@ https://www.linkedin.com/in/jennifer-crowley-978ba113b/
 - Design District Intel at https://www.linkedin.com/company/design-district-intel/
 - substack blogs at https://substack.com/@designdistrictintel
 - systems analyst, business analyst, product manager, data analytics, saas project management, integrations, ai, automating, webdesign, ux, qa, agile, scrum, all things tech 
