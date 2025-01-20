@@ -9,5 +9,5 @@
 - nature, enviroment, resources, hiking
 - music, dance, food, culture 
 - art, photography, graphics, motion graphics, creative direction
-- growth, expansion, reflection, community, adventure, exploration, experimentation, challenge the status quo, infinate possibilities and perspectives to consider, never bored
+- growth, expansion, reflection, community, adventure, exploration, experimentation, challenge the status quo, infinite possibilities and perspectives to consider, never bored
 - You can find me catching flights 
